@@ -10,4 +10,4 @@
 
 <p>本专区收录各类国产与日韩精品影像资源，覆盖午夜理论片、不卡专区及深夜专属内容。无跳转、不卡顿，支持全设备访问，特别适合喜欢私密观影体验的用户。每日同步更新，精彩不停歇。</p>
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sap20250709/sap8 ）</span>
